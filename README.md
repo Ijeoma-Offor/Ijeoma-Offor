@@ -11,4 +11,5 @@
 - 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/dr-ijeoma-olachi-offor-59252329a/)
 - 😄 Pronouns: She 
 - ⚡ Fun fact: I love to encourage and steer youths through the paths of vocational and digital skills and STEM fields
--->
+
+- Contact me [here](adaoraijay@gmail.com)
